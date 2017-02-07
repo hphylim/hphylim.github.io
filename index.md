@@ -1,1 +1,1 @@
-![Image](http://imgur.com/a/0A3kc)
+![Image](http://i.imgur.com/ypbSCnl.png)
